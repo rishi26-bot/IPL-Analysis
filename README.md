@@ -115,4 +115,4 @@ _Fill in after reviewing your results. Examples of the kind of conclusions to dr
 
 ## 🙋 Author
 
-**Your Name** · [LinkedIn](https://linkedin.com/in/your-profile) · [GitHub](https://github.com/your-username)
+(https://www.linkedin.com/in/rushikesh-uke-921081290/) · 
